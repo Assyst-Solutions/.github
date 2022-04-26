@@ -8,4 +8,4 @@ Software solutions for workflow automation, process optimization and data driven
 Reach out for an introduction to our products at [sales@assyst-solutions.com](mailto:sales@assyst-solutions.com)
 
 ## More about us
-Check us out and drop a message at [assyst-solutions.com](https://assyst-solutions.com)
+Check us out and drop a message at [assyst-solutions.ro](https://assyst-solutions.ro)
